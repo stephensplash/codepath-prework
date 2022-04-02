@@ -4,7 +4,7 @@
 
 Submitted by: Stephen Mgbemeje
 
-Time spent: 20 hours spent in total
+Time spent: 10 hours spent in total
 
 Link to project: https://prework-files.glitch.me
 
